@@ -1,4 +1,4 @@
-计算机网络
+计算机网络haha
 
 I'm currently pursuing a Master's degree in XX at the Department of XX, XX University, XX.
 
